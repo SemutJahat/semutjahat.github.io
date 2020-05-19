@@ -1,1 +1,0 @@
-# semutjahat.github.io
